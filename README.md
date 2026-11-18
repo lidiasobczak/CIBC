@@ -1,3 +1,3 @@
 # CIBC
 Data Analyst, Employee Communications Platform / Lidia Sobczak
-🎥 (https://youtu.be/jrrgEu3xUiE)
+🎥YOU CAN WATCH MY PRESENTATION HERE:  (https://youtu.be/jrrgEu3xUiE)
